@@ -1,2 +1,2 @@
 # ziad-elkholy
-https://preview--sparkle-folio-hub.lovable.app/
+https://preview--portfolioziad35.lovable.app/
